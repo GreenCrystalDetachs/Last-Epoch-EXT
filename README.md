@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://readme-typing-svg.demolab.com?font=Cinzel&weight=900&size=56&pause=450&color=9B59B6&center=true&vCenter=true&width=1200&height=140&lines=LAST+EPOCH+HACK+2026;GOD+MODE+%7C+ITEM+DUPE;DOMINATE+ETERNITY" alt="Last Epoch Hack 2026" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/c0e34a97-94fd-4f20-9565-37c5eaa11c96" />
 
 <br/>
 
